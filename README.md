@@ -2,6 +2,8 @@
 
 https://nl.wikipedia.org/wiki/Bouman_GGZ
 
+https://nl.wikipedia.org/wiki/Isoleercel
+
 https://nl.wikipedia.org/wiki/Prinsenland
 
 https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
